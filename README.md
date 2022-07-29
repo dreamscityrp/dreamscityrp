@@ -1,4 +1,4 @@
-👋 Olá, Somos a@dreamscityrp
+👋 Olá, Somos a @dreamscityrp
 
 Vamos falar um pouco sobre a ✨ Dreams City RP✨  ou melhor a tão esperada ✨ Cidade dos Sonhos✨ :
 
